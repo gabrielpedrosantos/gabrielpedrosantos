@@ -1,7 +1,7 @@
 
 ### Olá! Eu sou o Gabriel Pedro
 
-Apaixonado por tecnologia, procurando sempre evoluir cada vez mais minha carreira profissional
+Apaixonado por tecnologia, procurando sempre evoluir e aprender cada vez tanto minha vida profissional, como minha vida pessoal
 
 ### Redes Sociais
 
